@@ -1,0 +1,5 @@
+- 👋 Selam, Ben @Ktanaoff
+- 👀 
+- 🌱 Öğrenme Aşamasındayım
+- 💞️ 
+- 📫 yardıma ihtiyacın varsa sorabilrisin 
